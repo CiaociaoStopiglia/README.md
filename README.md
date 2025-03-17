@@ -1,4 +1,4 @@
-#Me chamo João Stopiglia
+Me chamo João Stopiglia
 
 💻 **Desenvolvedor de Sistemas**
 
