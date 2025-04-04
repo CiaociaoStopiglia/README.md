@@ -3,7 +3,7 @@
 #### Desenvolvedor de Sistemas 
 
 ## Conecte-se comigo 
-[LinkedIn] (https://www.linkedin.com/in/jo%C3%A3o-stopiglia-22a8a1349/)
+[LinkedIn](https://www.linkedin.com/in/jo%C3%A3o-stopiglia-22a8a1349/)
 
 ## 🔥 Skills
 
